@@ -23,7 +23,7 @@
 
 - 🔭 &nbsp; I’m currently doing Open source Contributions.
 - 🤔 &nbsp; Exploring new technologies and developing software solutions and quick hacks.
-- 📫 How to reach me **vinayrajak3766@gmail.com**
+- 📫 How to reach me **0311shivamdubey@gmail.com**
 - 🎓 &nbsp; Studying Information Technology.
 - ☕ &nbsp; I believe, a perfect cup of coffee can be the ultimate solution for any stress. 
 
